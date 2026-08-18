@@ -1,0 +1,1 @@
+My dream is to earn money and beat mukesh ambani , bill gates and elon mask and become the richest person in the world ever
