@@ -1,0 +1,1 @@
+My biggest bottleneck is I need more knowledge nad financial planning to achieve my dreams
