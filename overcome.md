@@ -1,0 +1,1 @@
+To overcome the bottleneck ,I need to work consistently and improve my knowledge on what I am aiming for
